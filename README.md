@@ -1,1 +1,0 @@
-# nakatsugawa-riv-pjt0mnsfa
